@@ -1,7 +1,7 @@
 ## SnowayOne🖥️ 
 Boas Vindas ao meu Perfil
 Meu nome é Igor Gomes
-16 anos
+17 anos
 Hétero
 Man of God
 PR-DV
