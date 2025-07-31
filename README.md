@@ -2,7 +2,6 @@
 Boas Vindas ao meu Perfil
 Meu nome é Igor Gomes
 17 anos
-Hétero
 Man of God
 PR-DV
 
